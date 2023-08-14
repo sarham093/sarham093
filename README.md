@@ -11,7 +11,7 @@
 
 - 💬 Ask me about **Python R Power BI**
 
-- 📫 How to reach me **sarham093093@gmail.com**
+- 📫 How to reach me **sarham093@gmail.com**
 
 - 📄 Know about my experiences [www.linkedin.com/in/arhamshahzad2000](www.linkedin.com/in/arhamshahzad2000)
 
